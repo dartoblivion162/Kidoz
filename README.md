@@ -236,4 +236,4 @@ KIDO'Z is available as a full free version with all features and updates include
 Encourage your children to explore the internet safely with KIDO'Z — download it free today!
 
 ---
-**Last updated:** 2026-09-20 17:54:27 UTC
+**Last updated:** 2026-09-20 20:14:21 UTC
